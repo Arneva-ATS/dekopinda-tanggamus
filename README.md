@@ -1,1 +1,1 @@
-# dekopinda-tanggamus
+# dekopinda-karanganyar
